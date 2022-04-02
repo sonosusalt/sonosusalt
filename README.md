@@ -1,1 +1,1 @@
-The alt account of [@Sonosus](github.com/sonosus)
+The alt account of [@Sonosus](https://github.com/sonosus)
